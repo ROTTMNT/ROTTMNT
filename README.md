@@ -12,13 +12,13 @@
 </p>
 
 <h5 align="center">
-‎ ‎‎ ‎ ‎  hihiii , hello ! ^_^
-w2i at all times as i'm usually offtab as indicated by my busy status . however , i use idle to indicate that i'm online and most likely just sitting around . though , if i don't reply to you it means that i don't wish to chat at the moment and i apologize in advance . green names / friends are always allowed to interact whenever unless stated otherwise . c+h is fine as well , because i don't care about what you do to my virtual pixels .
+‎ ‎‎ ‎ ‎  hello, and greetings！
+please <i> whisper to interact </i> at all times as i am often offtab or elsewhere.  i tend to use busy to indicate my current status, that being ― busy = offtab , idle = online.  however, i apologize in advance if i blantantly ignore you if you are aiming for a conversation with me.  i do not enjoy socializing with people, more especially if we have nothing in common.  that being said, <i> aesvic, nortluca, and subkit </i> fans are strongly encouraged to interact!  unless you're weird about them, otherwise, don't bother.
 </h5>
 
 ***
 <h5 align="center">
-‎ ‎‎ ‎ ‎  small note , i am not an irl and do not refer to me as one . i'm fully aware i'm my own person and if you have issues with people taking names from characters then it's best to dni . joscarl, josvic, and edvic are not welcome either . . . reading my rentry and leaving a kind message in my strawpage would be well appreciated . （＾∇＾）
+‎ ‎‎ ‎ ‎  i am not an irl, nor am i a system.  i am always actively aware that i'm my own person, and i do not wish to be referred to as an irl or as a system because i am not either of those.  if you have issues with people taking names from fictional characters as their own, then it's best to not interact.  <i> joscarl, josvic, edvic, VALE, florimatt, and eddrew </i> are preferred to dni or avoid mentioning as well.  i just hate those pairing dynamics and i could list reasons why they wouldn't work out if you were to get upset by this...
 </h5>
 <p align="center">
 <img src="https://files.catbox.moe/cul5ju.png"/>
