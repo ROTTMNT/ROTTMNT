@@ -25,7 +25,7 @@ please <i> whisper to interact </i> at all times as i am often offtab or elsewhe
 <img src="https://files.catbox.moe/cul5ju.png"/>
 </p>
 <p align="center">
-<img src="https://files.catbox.moe/d4zj16.png"/>
+<img src="https://files.catbox.moe/r6vvw6.gif"/>
 </p>
 
 
